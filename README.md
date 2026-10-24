@@ -1,1 +1,0 @@
-# Frosthaven_companion_indoor_temporal
